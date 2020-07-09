@@ -17,6 +17,4 @@ I like daisies!
 
 yes verri nais
 
-:)
-
 
